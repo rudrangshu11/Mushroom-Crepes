@@ -1,1 +1,0 @@
-Mushroom crêpes are a very simple first course to prepare, suitable for an elegant dinner or lunch. It is an easy and tasty recipe made using mushrooms.
